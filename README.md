@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ahmed Hamdi or @AhmedDevelopereg
-- 👀 I’m interested in Developing and creating games and botd
+- 👀 I’m interested in Developing and creating sites, games and bots
 - 🌱 I’m currently learning In Secondary school
 - 📫 How to reach me Be the BEST
 - 😄 Nicknames: Andro, Ozil and HackerMasr
